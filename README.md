@@ -1,1 +1,1 @@
-# B2-Trinity
+# Group B2-Trinity
